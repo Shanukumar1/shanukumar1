@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Manual Testing**
 
-- 📫 How to reach me **shanusingh288@gmail.com**
+- 📫 How to reach me **https://www.linkedin.com/in/shanu-singh-bb86ba218**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
